@@ -100,7 +100,7 @@ NBA-Trends-Analysis/
 
 **Irmak Erkol**  
 📧 irmakerkol00@gmail.com  
-💼 [LinkedIn](https://linkedin.com/in/irmakerkol)
+💼 [LinkedIn](https://linkedin.com/in/ierkol)
 
 ---
 
